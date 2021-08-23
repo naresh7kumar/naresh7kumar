@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @naresh7kumar
+- 👀 I’m interested in Simulation and Modelling.
+- 🌱 I’m currently learning Anylogic 8.0 and Revit 
+- 💞️ I’m looking to collaborate on Logistics and Supply Chain projects
+- 📫 How to reach me +91-9884069262, nareshcivil1993@gmail.com
